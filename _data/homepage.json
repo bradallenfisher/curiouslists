@@ -1,0 +1,11 @@
+{
+    "title": "Curious Lists",
+    "subtitle": "Infinite lists of infinite things",
+    "menu": [
+ 
+        {
+            "title": "Our Latest Content",
+            "post_list": "post"
+        }
+    ]
+}
