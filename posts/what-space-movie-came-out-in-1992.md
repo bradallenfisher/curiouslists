@@ -9,14 +9,30 @@ tags:
 ---
 
 ![what space movie came out in 1992](/media/wwg.webp)
+So.... 
 
-## Overview of Outer Space in 1992 Cinema
+I joined this chat the other night. 
+I was interested in exploring some concepts about entities. And i had seen a post in a group i frequent in social media.
 
-The year 1992 saw several films exploring space and science fiction themes. While big-budget space movies often dominated the box office, some smaller or independent productions used the genre to deliver unique stories. One such film is the Danish short film *Gayniggers from Outer Space*. It stands out for its mix of comedy, parody, and social commentary, making it a cult classic in underground and niche sci-fi circles.
+In an attempt to explain how "things work" i was prompted to search the term "what space movie came out in 1992" 
+
+I didn't know what i was in for. LOL... but, here is the breakdown of what i saw.
+
+## What space movie came out in 1992?
+
+The year 1992 saw several films exploring space and science fiction themes. While big-budget space movies often dominated the box office, some smaller or independent productions used the genre to deliver unique stories. One such film is the Danish [short film](https://www.imdb.com/title/tt0274518/) *Gayniggers from Outer Space*. It stands out for its mix of comedy, parody, and social commentary, making it a cult classic in underground and niche sci-fi circles.
+
+I have no idea why this movie is at the top of the list, as [Alien 3 (1992)](https://www.google.com/search?q=alien+3&oq=alien+3&gs_lcrp=EgZjaHJvbWUqBwgAEAAYjwIyBwgAEAAYjwIyDQgBEC4YgwEYsQMYgAQyEggCEAAYFBiDARiHAhixAxiABDIHCAMQABiABDIHCAQQABiABDIHCAUQABiABDIHCAYQLhiABDIHCAcQABiABDIHCAgQABiABDIHCAkQABiABNIBCDMwNjBqMGo3qAIAsAIA&sourceid=chrome&ie=UTF-8) is also a "Space movie that came out in 1992".
+
+**I'm not saying one of these 2 space movies are better than the other.** 
+
+However, it is a tad curious to me that an independent Danish director could topple the charts on google simply using IMDB and entities to outrank such a popular franchise in the search results. 
+
+anyways i digress, let's get into what you are here for... the ultra creative, uber rare yet somehow seemingly popular "what space movie came out in 1992" which is "Gayniggers from Outer Space"
 
 ## Introduction to the 1992 Space Movie: Gayniggers from Outer Space
 ![Introduction to the 1992 Space Movie: Gayniggers from Outer Space](/media/pool.webp)
-*Gayniggers from Outer Space* is a short Danish sci-fi parody directed by Morten Lindberg. Released in 1992, the movie combines science fiction stereotypes with satire and humor. It was made on a low budget but quickly gained attention for its bold themes and distinct style. The film portrays a group of intergalactic homosexual black men traveling in space.
+*Gayniggers from Outer Space* is a short Danish sci-fi parody directed by [Morten Lindberg](https://www.imdb.com/name/nm0511397/?ref_=tt_ov_dr_1). Released in 1992, the movie combines science fiction stereotypes with satire and humor. It was made on a low budget but quickly gained attention for its bold themes and distinct style. The film portrays a group of intergalactic homosexual black men traveling in space.
 
 ## Plot and Setting: Planet Anus and Outer Space Adventures
 
@@ -25,7 +41,17 @@ The story is set partly on *Planet Anus*, a fictional place, and unfolds mostly 
 ## Key Characters: Black Men Fighting Oppression from Outer Space
 ![Key Characters: Black Men Fighting Oppression from Outer Space](/media/skel.webp)
 
-The main characters are a group of black men from outer space. They serve as *gay ambassadors* who aim to free men from the dominance and oppression of women on Earth. Each character plays a role in the mission to create a new society that replaces sexist and oppressive structures. Their identities and roles challenge typical sci-fi character stereotypes.
+The main characters are a group of black men from outer space. According to IMDB... 
+
+## The cast of Gayniggers from Outer Space includes: 
+Coco P. Dalbert
+Sammy Saloman
+Gerald F. Hail
+Gbatokai Dakinah
+Konrad Fields
+Johnny Conny Tony Thomas
+
+They serve as *gay ambassadors* who aim to free men from the dominance and oppression of women on Earth. Each character plays a role in the mission to create a new society that replaces sexist and oppressive structures. Their identities and roles challenge typical sci-fi character stereotypes.
 
 ## The Role of Homosexuality and Comedy in the Film
 
@@ -83,6 +109,6 @@ Online, the film holds cult classic status. It is shared widely, often as a come
 
 If you enjoy unique sci-fi films like this, many online groups focus on cult classics and genre parodies. Websites, fan forums, and social media groups provide recommendations and discussions. Joining these communities expands your knowledge of sci-fi’s humorous and rebellious side.
 
-## Conclusion: The Lasting Influence of Gayniggers from Outer Space as a 1992 Outer Space Film
+## Conclusion: I don't knwo why this movie comes up before Aliens 3. However, if you play your search cards right, apparently you can...
 
 *Gayniggers from Outer Space* is a bold, satirical 1992 space movie. It blends science fiction with sharp humor and social critique. Despite controversy, it remains a memorable cult film that challenges stereotypes and celebrates diversity. Its unique style and message keep it relevant to fans today.
